@@ -1,0 +1,1 @@
+🎮 videogame analize
